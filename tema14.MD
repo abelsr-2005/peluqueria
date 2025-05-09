@@ -1,4 +1,4 @@
-**Tema 14: Cosmética para Peluquería**
+# Tema 14: Cosmética para Peluquería
 
 **Clasificación y Composición de Cosméticos Capilares**
 
