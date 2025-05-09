@@ -1,9 +1,9 @@
 # Tema 12: Peinados y Recogidos (II)
 
-## Realización de la Higiene y el Acondicionamiento Capilar
+**Realización de la Higiene y el Acondicionamiento Capilar**
 La higiene capilar es un proceso esencial para mantener el cabello en óptimas condiciones, libre de impurezas y residuos que dificultan cualquier tratamiento posterior. Un correcto acondicionamiento mejora la salud capilar, facilitando su manejo y proporcionando brillo y suavidad al cabello.
 
-### Fases del Proceso de Higiene Capilar:
+**Fases del Proceso de Higiene Capilar:**
 
 1. Diagnóstico capilar previo:
 
