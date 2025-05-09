@@ -1,4 +1,4 @@
-**Tema 13: Peinados y Recogidos (III)**
+# **Tema 13: Peinados y Recogidos (III)**
 
 **Realización de Peinados y Acabados del Cabello**  
 La realización de peinados y acabados es un proceso creativo y técnico en el que se transforma temporalmente el cabello para lograr estilos personalizados que destaquen la belleza natural y la personalidad del cliente. Este proceso requiere de habilidad técnica, creatividad y una atención meticulosa a cada detalle para alcanzar resultados impecables y duraderos.
